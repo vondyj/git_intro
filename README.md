@@ -1,1 +1,4 @@
-Jillian Vondy2
+Jillian Vondy
+vondyj@oregonstate.edu
+yellow
+Vince Staples
